@@ -1,1 +1,1 @@
-This is my resume
+Here are a few of the projects that I've worked on
